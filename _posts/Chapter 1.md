@@ -1,3 +1,8 @@
+---
+layout: post
+title: Defeat. Revelation. Conspiracy.
+---
+
 The night sky stretched in all directions, surrounding him completely, stars peppering his entire field of view, no matter which way he looked. Up? Down? Even when he tried to look at his hands, there were only more stars. He was floating or was he drifting? Regardless, a sinking feeling slowly over took him. 
 
 But then there was a voice. A thin one. So fine he couldn't make out a single word. So quiet, it felt more like the memory of words. Words spoken ages ago. Their pronunciations and timbre lost in time, but somehow they still seemed meaningful in some way...
@@ -44,8 +49,24 @@ He glanced between the six pages for a moment. Finally, the quill stopped and st
 The quill, and the parchment it had filled with several feet of elegant script, burst into a bright flame that lasted for only a second, but burned so hot it left no trace of ash behind it.
 
 And a particular candle suddenly felt a little self-conscious.
+
 ---
 
+"Are you certain, Sire-" Lord Theo took a pause as he tried to word his suggestion carefully. "Have you considered the possibility that your 'source' might simply be a remnant of the old war? Perhaps a long ago trap that failed to spring at it's original designation?"
+
+"I understand your concern, General." Arthur sat, his hands clasped in concentration under his chin. "This most certainly sounds  like the sort of web Nagaroth would spin. And I too felt the urge to brush it aside. But we have had nearly two decades without conflict, and I fear, this is precisely the kind of thing that long periods of peace brings."
+
+Theo took a breath, and thought through what The King had told him. "Well, I suppose the risk of not investigating far out ways the loss of trust." Theo crossed his harms, his gaze falling downward as he analyzed the safest path take in confirming Arthurs suspicions. Arthur nodded. 
+
+"Take someone you trust, but don't tell them what you have heard hear. Let them make the report, and we'll compare notes between your source and mine."
+
+Theo looked up, content to have the question answer for him. *How long had The King been mulling over this problem?* he wondered. "Your majesty." Theo bowed gracefully, then spun on his heal and left.
+
+Arthur rose from his throne, and walked, contemplatively over to  the window that held at it's bottom the courtyard that budded with spring flowers. The thick glass sparkled a soft pink glow, and calmness eased in over his Arthurs shoulder.
+
+"I fear I might loose a dear friend if everything you say is true, Navi." The radiant orb softly rested on Arthurs left shoulder, but as always, when she spoke, her voice filled his mind rather than whichever ear was closest.
+
+"If I am not mistaken, I'm afraid we will all loose much more than that if I."
 
 
 
